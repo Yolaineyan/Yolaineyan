@@ -21,3 +21,7 @@ Here are some ideas to get you started:
 规划自己未来三年的发展设想: 学习技术 发家致富 my reason： Money isn't everything but is something u need, and only with good capacity can have good salary.
 
 自我评估： 精通面向结果编程，精通基于ctrl c与ctrl v编程技术。了解c语言与面向对象设计,还在努力学习中。
+
+📧Contact me by my e_mail: 1215236791@qq.com
+
+🙉👾👾👾👾👾👾👾👾👾👾 VS 🤖🤖🤖🤖🤖🤖🤖🤖🤖🤖😸
